@@ -1,0 +1,1 @@
+# WIG_20-Stocks
